@@ -1,2 +1,2 @@
 # Interative-AI-WALL-E-styled-tank
-![image](https://github.com/jjjie007/Q3Q_Ai_DOOGY/assets/163743082/ab805722-c0d4-44a2-add1-9dd17b70dbae)
+![AMB82-MINI](https://github.com/TravisYu921114/portable-ChatGPT/assets/161717487/fa29e897-c9b5-46a8-8f40-03c17f0e16ad)
